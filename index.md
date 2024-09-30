@@ -6,7 +6,7 @@ I'm **Roza**, the author of this blog, and I'll be sharing regular updates, rese
 
 Whether you're a researcher, enthusiast, or just curious about Solid State Modification, you'll find something interesting here.
 
-![SSM Research](https://via.placeholder.com/800x400)
+![molecules-29-00667-g002-550](https://github.com/user-attachments/assets/96fe5e40-9c9a-4d36-b648-272ab1a12ec2)
 
 ---
 
